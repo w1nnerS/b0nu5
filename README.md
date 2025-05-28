@@ -1,8 +1,8 @@
 ## DENEME BONUSU VEREN SİTELER 🏆
 
-# Güncel giriş'e ulaşmak için görsellere tıklamanız yeterlidir!
+# Bedava bonuslara ulaşmak için görsellere tıklamanız yeterlidir!
 
-### <a href="https://t.me/+NgmFAvyKP1BlZjM0" title="Deneme Bonusu">🔗 DENEME BONUSU</a>
+### <a href="https://t.me/+NgmFAvyKP1BlZjM0" title="Deneme Bonusu">🔗 Güncel DENEME BONUSU Adresi</a>
 
 ---
 
